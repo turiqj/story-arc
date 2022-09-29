@@ -9,7 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
-
+it was a long journey but i was not alone
 
 ## Chapter 4: Recovery
 
