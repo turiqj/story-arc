@@ -2,7 +2,7 @@
 
 ## Chapter 1: Characters
 
-Our story begins with...
+Our story begins with an unhinged squirrel and his acorn
 
 
 ## Chapter 2: Quest
