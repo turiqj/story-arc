@@ -7,7 +7,7 @@ Our story begins with an unhinged squirrel and his acorn
 
 ## Chapter 2: Quest
 They are lost... Walking in the middle of the Grand Canyon. On their way to Vegas to a bachelor party.
-
+They love it!
 ## Chapter 3: Hardship
 it was a long journey but i was not alone
 
