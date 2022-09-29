@@ -6,7 +6,7 @@ Our story begins with...
 
 
 ## Chapter 2: Quest
-
+They are lost... Walking in the middle of the Grand Canyon. On their way to Vegas to a bachelor party.
 
 ## Chapter 3: Hardship
 
