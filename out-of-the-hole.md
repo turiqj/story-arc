@@ -9,7 +9,7 @@ Our story begins with...
 They are lost... Walking in the middle of the Grand Canyon. On their way to Vegas to a bachelor party.
 
 ## Chapter 3: Hardship
-
+it was a long journey but i was not alone
 
 ## Chapter 4: Recovery
 there was a girl who lived happily after 
